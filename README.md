@@ -1,3 +1,3 @@
-## Hi, I'm Nigella!  
+## Hi, I'm Nigella!✨
 🧠 MechE Student at SCC
 
